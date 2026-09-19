@@ -209,4 +209,4 @@ GTA 2 is available as a full free version, providing you with all features and u
 Download GTA 2 today and embark on your thrilling criminal adventure in Anywhere City!
 
 ---
-**Last updated:** 2026-09-19 21:55:56 UTC
+**Last updated:** 2026-09-19 23:48:38 UTC
